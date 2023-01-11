@@ -1,0 +1,1 @@
+Haydun! Juega DBD y se loopea 5 gens a los killers porque LexDBD no tiene manos
